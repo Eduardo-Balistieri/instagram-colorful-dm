@@ -1,4 +1,4 @@
-![Preview](https://media.giphy.com/media/pDyqNwweixP6kQxmyu/source.gif)
+![Preview](https://media.giphy.com/media/pDyqNwweixP6kQxmyu/giphy.gif)
 
 <hr />
 
